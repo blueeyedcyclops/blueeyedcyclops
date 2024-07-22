@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @blueeyedcyclops
-- 💞️ I’m looking to collaborate on cyber governance projects
 - 📫 discord: blueeyedcyclops #8600
 - 😄 Pronouns: she/her
 
